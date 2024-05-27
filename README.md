@@ -8,7 +8,6 @@
 
 ![image](https://github.com/vampire-cheshire/vampire-cheshire/assets/161101501/19b01ab5-ddd5-49a9-bd55-cefc9ea170ba)
     ``    us !!
-![image](https://github.com/vampire-cheshire/vampire-cheshire/assets/161101501/d50dd11a-3d2e-48b7-bcf7-41425dd6c25d)
 
 ![image](https://github.com/vampire-cheshire/vampire-cheshire/assets/161101501/b901e20a-0a81-4c46-9edb-d66d2ed24b42)
 
