@@ -6,7 +6,7 @@
 
   ![pv](https://komarev.com/ghpvc/?username=vampire-cheshire&color=a8ccda&label=batcat)
 
-<sup><sub>𖥔~ ily guys ,, meryl , mac , mipha , hush , sven , argenti , p*ra , jc , juni , moss , knucks , jacko </sub></sup>
+<sup><sub>𖥔~ ily guys ,, carmie , meryl , mac , mipha , hush , sven , argenti , p*ra , jc , juni , moss , knucks , jacko </sub></sup>
 </div>
 
 ![image](https://github.com/user-attachments/assets/9b1034bc-fe19-45be-b000-e4847f9f1f82)
